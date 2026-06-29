@@ -1,4 +1,4 @@
-#  
+#  professional steal the brainrot base Script offers the most advanced steal the brainrot base Script, with invisibility and infinite resources.
 
 
 
